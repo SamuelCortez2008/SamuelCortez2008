@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **oscars.cortezmo@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1HsVO1-gzC5b88FpAtAgzULkFHPqTGzwK/view?usp=sharing](https://drive.google.com/file/d/1HsVO1-gzC5b88FpAtAgzULkFHPqTGzwK/view?usp=sharing)
+- 📄 Know about my [experiences](https://drive.google.com/file/d/1HsVO1-gzC5b88FpAtAgzULkFHPqTGzwK/view?usp=sharing)
 
 - ⚡ Fun fact **I like to think I’m funny 😄**
 
